@@ -10,7 +10,7 @@
 <p align="center">  $${\color{lightskyblue} 
  ♱   ｡ ﾟ 𐑂   𝘴𝘵𝘢𝘺 ‎ 𝘸𝘪𝘵𝘩 ‎ 𝘮𝘦 . . . . * ﹆ﾟ i ‎ 𝘥𝘰𝘯'𝘵‎  𝘸𝘢𝘯𝘵 ‎ 𝘺𝘰𝘶 ‎ 𝘵𝘰‎  𝘭𝘦𝘢𝘷𝘦 ﾟ ★ }$$ 
  <p align="center">  
- 
+ if anyone has pony comms open lmk
  <p align="center"> $${\color{lightskyblue}
   hi!!!‎  call ‎ me ‎ Dolphin ‎ Or ‎ Scott}$$
   <p align="center"> $${\color{blue}
