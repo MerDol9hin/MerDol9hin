@@ -1,6 +1,6 @@
-![alt text](https://media.discordapp.net/attachments/1052873893028843574/1538383357715681310/Untitled491_20260815220526.png?ex=6abbd3e6&is=6aba8266&hm=315c19563817fc93a29fc4adcc8746d63c99e5be79e063adc22daef91244d296&=&format=webp&quality=lossless)
+![alt text](https://i.postimg.cc/wB8XqbRw/Untitled491-20260815220526.webp)
 <p align="center">               
-<p align ="center"> <img src="https://media.discordapp.net/attachments/1052873893028843574/1538481760290086932/Untitled489_20260816043656.png?ex=6abb86cb&is=6aba354b&hm=b14193a2ff95472fe79796386f62b438270c5edef70cb9c8a3a85630a8517068&=&format=webp&quality=lossless" width="250" height="400">
+<p align ="center"> <img src="https://i.postimg.cc/K8V9nNks/Untitled489-20260816043656.webp" width="250" height="400">
  <p align="center"> $${\color{lightskyblue}
   Dolphin    or    SCOTT }$$
 <p align="center"> $${\color{blue}
